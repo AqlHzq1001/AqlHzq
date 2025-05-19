@@ -17,4 +17,4 @@ I am a third-year student at **UTM Skudai**, currently pursuing my degree in Com
 
 Feel free to reach out to me via:
 - Email: [aqilhaziq1001@gmail.com](mailto:aqilhaziq1001@gmail.com)
-- LinkedIn: [Your LinkedIn](https:/[/www.linkedin.com/in/yourprofil](https://www.linkedin.com/in/muhammad-aqil-haziq-zulkarnain/))
+- LinkedIn: https://www.linkedin.com/in/muhammad-aqil-haziq-zulkarnain/
